@@ -20,4 +20,4 @@ So in discussing the giant yabbie we found in during our Tassie Tarkine hike las
 - guitar
 - warehouse
 
-Created this blog using Jekyll via [jekyll-now](https://github.com/barryclark/jekyll-now) in about 1 min.
+Created this blog using Jekyll via [jekyll-now](https://github.com/barryclark/jekyll-now).
