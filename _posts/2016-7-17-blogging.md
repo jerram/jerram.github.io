@@ -14,7 +14,10 @@ So in discussing the giant yabbie we found in during our Tassie Tarkine hike las
 - drones
 - helis
 - IoT
+- Linux / computers
 - Mt Warning
 - bass building
 - guitar
 - warehouse
+
+Created this blog using Jekyll via [jekyll-now](https://github.com/barryclark/jekyll-now) in about 1 min.
