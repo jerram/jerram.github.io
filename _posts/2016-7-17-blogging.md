@@ -14,6 +14,7 @@ So in discussing the giant yabbie we found in during our Tassie Tarkine hike las
 - drones
 - helis
 - IoT
+- VR
 - Linux / computers
 - Mt Warning
 - bass building
