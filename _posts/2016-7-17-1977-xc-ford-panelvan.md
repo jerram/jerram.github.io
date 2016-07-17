@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Blogging
+title: 1977 XC Ford Pano Rebuild
 ---
 
 ![1977 XC Ford Pano Rebuild](https://www.dropbox.com/sc/wb4qpeoybkklpqv/AACPXIwRbX5EVIsJu-w_iqp0a?raw=1 =600x)
