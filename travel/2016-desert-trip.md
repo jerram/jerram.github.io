@@ -176,7 +176,7 @@ Kim is playing violin and cooking more amazing food. Defo going to keep looking 
 
 ## Hightailing
 
-Heading back with Izzy Lombe and Bassy, Sombwah and Rusty the dog. Left super late after going to the hot springs. Lindhurst shop had shut by 6, so we are low on petrol. Driving at night heading for Zenis. Hit a roo and broke the light before Copley. Need a servo for fuel. Finally stopped to wait for morning to buy petrol. Late night anyway, time to stop.
+Heading back with Izzy, Lombe, Bassy, Sombwah and Rusty the dog. Left super late after going to the hot springs. Lindhurst shop had shut by 6, so we are low on petrol. Driving at night heading for Zenis. Hit a roo and broke the light before Copley. Need a servo for fuel. Finally stopped to wait for morning to buy petrol. Late night anyway, time to stop.
 
 Left earlyish, pies for breaky again. Broke trailer suspension and fixed it with a block of wood. Drove most of the day, didn't get pulled over.
 
