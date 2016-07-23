@@ -14,7 +14,7 @@ Something like [www.aircommandrockets.com](http://www.aircommandrockets.com/site
 - journal
 - regendirect.com.au
 - [car](/1977-xc-ford-panelvan/)
-- travel
+- [travel](/travel/2016-desert-trip)
 - RC
     + drones
     + helis
