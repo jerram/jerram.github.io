@@ -21,8 +21,8 @@ Went through lots of small towns, ([Whycheproof](https://en.wikipedia.org/wiki/W
 
 Things I did not bring:
 
-- *Pillow*. If you have a down jacket you can roll this up into its hood for a feather pillow.
-- *Camp chair*
+- *Pillow*. Doh. If you have a down jacket you can roll this up into its hood for a feather pillow.
+- *Camp chair*. this will need to be fixed
 - *Digital level* for the telescope
 - *A cup*. Luckily Phil had picked me up a Pingu cup, that kids kept on knicking at out Roxby camp.
 - *Jet stove and flint*
@@ -50,7 +50,7 @@ I'm wearing my old beat up uggs, taking them out for a last trip before hopefull
 - *Shoe Deathchant*
 - *Kicking the Bucket List*
 
-Saw an add for [Northwest 3 day endouro motorx](https://www.northwestvicmcc.com.au/round-3-enduro-update/). That would be serious fun.
+Saw an ad for [Northwest 3 day endouro motorx](https://www.northwestvicmcc.com.au/round-3-enduro-update/). That would be serious fun.
 
 ---
 *Notes only from here:*
@@ -92,9 +92,9 @@ Cops stopped everyone 200kms from Port Disgusta and searched us. Apparently the 
 
 ## Olympic Dam Camp
 
-People I met from the trip.
+People from the trip:
 
-- Kim marc and bassy
+- Kim Marc and Bassy
 - Netannis from melbourne, Solly, son
 - Damo the van artist - throw away world painting
 
@@ -111,9 +111,13 @@ Things to bring
 
 Why is telescope resetting?
 
+- Charlotte and James and Terra, hadn't seen Charlotte since 2000 in WA. Amazing to see her, and meet her family.
 - Dennis from alice, with the huge truck and 1000l of water. Swapped a box of musli bars with him for perpetual water rights.
 - Yoana [artist](http://yoanamynah.tumblr.com) from Alice
 - Ani Zeni's friend
+- Vance & Sophia with the white ute heading to Alice to see his sister.
+
+Heading to Alberrie Creek next, along Borefield road.
 
 ```
 1481@roxby 33.31
@@ -131,11 +135,12 @@ Why is telescope resetting?
 - Laptops for remote communities
 
 - Meg wants to look at Saturn 04xx xxx xxx. Met her back in melbourne as well.
-- Fiona
-- Riley from Adelaide
-- Jarrah from Alice, from up SE Queensland
+- Fiona traveled with Karli through the desert before.
+- Riley from Adelaide. Riley plays in a puck band, saw them at Hotshots after the trip
+- Jarrah from Alice
+- Oche from Alice, traveling with Yoana
 
-Get the shipping container and drop it on the land. Cost the transport.
+Get the shipping container and drop it on the land. Cost the transport. Set ip up for long stays, fully contained.
 
 **Everyone needs to keep on paying.**
 Not buying paying.
@@ -146,30 +151,30 @@ If everyone stopped paying would the ride stop?
 
 Beer run with Jarrah kevs stepson, listening to [Flume](https://www.youtube.com/watch?v=hZe5K1DN4ec). 60 for beer and petrol 04xx xxx xxx
 
-Alberrie creek shopping list
+Alberrie creek shopping list:
 
 - Dust pan and broom
-- Tomatos or greens
-- Bok choy
+- Tomatoes or greens
+- Bok Choy
 - Super glue for Robin Mutoid
 - Beers
 
-The desert is soft but spiky.
-
 **If I did everything right, how life would lead.** I know what it is, I just choose not to do it. Exercise. Save all my money. Don't have a credit card. Be awesome. Don't smoke or drink or stay up late. Make sandwiches for work. Sleep right. Do all the projects.
 
-- Matt who is like uncle Matt.
-- Vance & Sophia with the white ute heading to Alice to see his sister.
-
 ## Leaving day.
+
+**The desert is soft but spiky.**
 
 Kim is playing violin and cooking more amazing food. Defo going to keep looking at the long tail with this smart girl. Heading back with Izzyosyncratic and Bassy in defected vehicle with unregistered trailer and no licensed drivers. What could go wrong.
 
 - Add lights - flashing lights - to the telescope when it is moving. Like a red flashing space viewing robot.
 - Jarrod who brought the bush dunnys, what a legend.
-- Charlotte and James and Terra, hadnt seen Charlotte since 2000 in WA. Amazing to see her, and meet her family.
 
 ## Hot springs
+
+*add photos*
+
+## Hightailing
 
 Heading back with Izzy Lombe and Bassy, Sombwah and Rusty the dog. Left super late after going to the hot springs. Lindhurst shop had shut by 6, so we are low on petrol. Driving at night heading for Zenis. Hit a roo and broke the light before Copley. Need a servo for fuel. Finally stopped to wait for morning to buy petrol. Late night anyway, time to stop.
 
