@@ -10,12 +10,16 @@ This is the telescope. I bought it second hand off a guy in Melbourne years ago,
 
 Few things I'm working on:
 
-- Camera [Svbony205](https://www.amazon.com/SVBONY-Astronomy-Compact-Wide-angle-Astrophotography/dp/B075K18YBY)
+- Camera and post processing [Svbony205](https://www.amazon.com/SVBONY-Astronomy-Compact-Wide-angle-Astrophotography/dp/B075K18YBY)
 - Laser - its a green hunting laser with a rifle mount and some double sided tape
 - SkyFi - this is what I used to burn out the second-to-last motherboard that existed on the planet. Will RTFM before plugging it back in again
 - Trolley. Yeah its heavy and I do think about having a smaller scope a lot. Perhaps a better trolley will help reduce the fiction to getting this out more often
 
 ## Camera
+
+- The view is currently green in the center - *A: If you find green spot in your photo,you have not adjusted the camera to its optimum state, you need to adjust saturation and so on.*
+
+## Post processing
 
 Astrophotography seems to be very Windows based. Being on a Mac I will be trying out a few different apps.
 
