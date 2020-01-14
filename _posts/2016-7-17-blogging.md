@@ -12,6 +12,7 @@ Something like [www.aircommandrockets.com](http://www.aircommandrockets.com/site
 ## Sections to add
 
 - journal
+- hiking
 - regendirect.com.au
 - [car](/1977-xc-ford-panelvan/)
 - [travel](/travel/2016-desert-trip)
